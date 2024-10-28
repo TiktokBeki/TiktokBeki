@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TiktokBeki
+- 👀 I’m interested in coding and riding my bike
+- 🌱 I’m currently learning in grade 6, i dont learn code but i love coding with my cousin, hes a software engineer
+- 💞️ I’m looking to collaborate on a python game
+- 📫 How to reach me (gmail: TiktokBekiAnime@gmail.com)
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: 
